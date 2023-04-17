@@ -1,0 +1,2 @@
+# storyyy
+masterpiece
